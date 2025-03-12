@@ -1,0 +1,3 @@
+O Núcleo de Inovação e Desenvolvimento Empresarial de Sabará (NIDES) é um programa de extensão registrado no IFMG Campus Sabará em Julho de 2017, sem financiamento, formado pela parceria entre IFMG Campus Sabará, Faculdade de Sabará, Associação Comercial, Industrial e Agropecuária de Sabará (ACIAS) e Câmara de Dirigentes Lojistas de Sabará (CDL).
+
+O NIDES tem o objetivo de oferecer soluções legais, gerenciais para pequenos negócios existentes ou pessoas que queiram iniciar um novo negócio na cidade de Sabará-MG e região. O NIDES oferece treinamentos e consultorias com o propósito de empoderar os pequenos negócios locais que não tem recursos para contratar treinamento se consultoria.
